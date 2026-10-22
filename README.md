@@ -221,4 +221,4 @@ Rosetta Stone is offered as a complete free version with all features and update
 Ready to enhance your skills while having fun? **Download Rosetta Stone free today and start your journey!**
 
 ---
-**Last updated:** 2026-10-22 07:13:48 UTC
+**Last updated:** 2026-10-22 13:33:29 UTC
